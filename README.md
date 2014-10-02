@@ -1,4 +1,1 @@
-SEOer
-=====
-
-Hoàng Xuân Hiếu
+http://hopcho.org/tags/iphone+6/ Thiên đường iPhone 6
